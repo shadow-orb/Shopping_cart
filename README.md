@@ -1,1 +1,1 @@
-https://magicitemsshop.000webhostapp.com/
+https://magicitemsshop.000webhostapp.com
